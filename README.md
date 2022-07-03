@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @AloneGirlWorld
 - 👀 I’m interested in vidéo game
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : 
 Mail : Inoxfire59163@gmail.com
 Discord Serveur : https://discord.gg/BQU9MUNC3n
