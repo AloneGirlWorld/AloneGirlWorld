@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AloneGirlWorld
-- 👀 I’m interested in vidéo game
+- 👀 I’m interested in video game
 - 📫 How to reach me : 
 Mail : Inoxfire59163@gmail.com
 
